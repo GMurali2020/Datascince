@@ -9,3 +9,5 @@ my name is hari i am working as a ai scientist at bell laboratory
 hari
 hari bhargav
 hrsha krish
+airtificial intelligence newly trending technology
+it is replace human 
